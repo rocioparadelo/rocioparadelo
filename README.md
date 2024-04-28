@@ -1,0 +1,5 @@
+- 👋 Soy @rocioparadelo
+- Actualmente estoy estudiando la carrera de Diseño UX/UI en Educacion It.
+- 🌱 Estoy interesada en poder avanzar en este mundo del diseño, realizar prácticas y poder comenzar a trabajar para seguir desarrolandome.
+- 📫 Me pueden contactar a través de mi mail roparadelo@gmail.com.
+- ⚡ Dato curioso: Soy Técnica Radióloga con especialización en rx odontólogica y rx quirúrgica.
